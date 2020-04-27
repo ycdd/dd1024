@@ -1,6 +1,5 @@
 # dd1024
-
- [toc]
+[toc]
 
 ### DDCLUB的一些事
 
