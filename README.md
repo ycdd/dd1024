@@ -13,11 +13,11 @@ DDCLUB从一八年十一月至今，有一年多之余。人之做事大概都�
 
 ### 免翻地址
 
-[免翻地址](https://cl.hn32.xyz/)
+[免翻地址](https://cl.dc72.xyz/)
 
-[免翻地址](https://cl.he32.xyz/)
+[免翻地址](https://cl.jh72.xyz/)
 
-[免翻地址](https://cl.hu32.xyz/)
+[免翻地址](https://cl.fs72.xyz/)
 
 [免翻地址](https://cb.321i.xyz/)
 
